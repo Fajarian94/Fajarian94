@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fajarian94
+- 👋 Hi, I’m Fajar
 - 👀 I’m interested in design
 - 🌱 I’m currently learning anythings can i learn
 - 💞️ I’m looking to collaborate on META (joking)
